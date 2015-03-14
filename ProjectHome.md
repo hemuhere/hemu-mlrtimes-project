@@ -1,0 +1,1 @@
+the first ever college magazine for the mlr college people
